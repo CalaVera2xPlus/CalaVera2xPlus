@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CalaVera2xPlus
-- 👀 I’m interested in Sports, Esports, Music and much more.
+- 👀 I’m interested in lots of things.
 - 🌱 I’m currently learning the basics of GitHub.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
